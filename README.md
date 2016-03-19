@@ -1,1 +1,2 @@
-# pr_sobota
+Nazov: dasfgdgfdcbgdsf
+Datum odovzdania: soifhjadgiu
